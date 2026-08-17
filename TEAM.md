@@ -1,0 +1,1 @@
+- Jory, I want to learn more about data and AI
