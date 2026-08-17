@@ -1,0 +1,1 @@
+- Re'am Almutrafi, I want to develop my teamwork skills and learn more about AI engineering and data centers
