@@ -1,2 +1,3 @@
+- Jory, I want to learn more about data and AI
 - Re'am Almutrafi, I want to develop my teamwork skills and learn more about AI engineering and data centers
 - Layan Alhathloul, I want to improve my Git and GitHub skills
